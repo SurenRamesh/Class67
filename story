@@ -1,0 +1,1 @@
+Goku approaches the battlefield. He sees a space ship.
