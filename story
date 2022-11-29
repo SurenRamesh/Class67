@@ -1,1 +1,1 @@
-Goku approaches the battlefield. He sees a space ship.
+Goku approaches the battlefield. He sees a space ship, and it suddenly starts to land. Goku sees as the foe, who stepped out the ship, 
